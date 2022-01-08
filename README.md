@@ -1,5 +1,5 @@
 ### hey what's up
 
-[🍊💊](https://inhaibt.global)
+[🍊💊](https://inhabit.global)
 
 [💥🔨](https://leveller.info)
